@@ -1,10 +1,12 @@
 ## A Teen’s Fatal Plunge Into the London Underworld
 
-### After Zac Brettler mysteriously plummeted into the Thames, his grieving parents discovered that he’d been posing as an oligarch’s son. Would the police help them solve the puzzle of his death?
+*After Zac Brettler mysteriously plummeted into the Thames, his grieving parents discovered that he’d been posing as an oligarch’s son. Would the police help them solve the puzzle of his death?*
 
 By Patrick Radden Keefe
-
+<br>
 *February 5, 2024*
+
+----
 
 After Zac Brettler died, his parents struggled to decode the mystery of what had happened to him. They thought that they could pinpoint the moment he’d started to change: three years earlier, when, at sixteen, he began boarding at Mill Hill School, in North London. Zac had grown up in Maida Vale, a quietly affluent neighborhood in the city. His father, Matthew, is a director at a small financial-services firm; his mother, Rachelle, is a freelance journalist. As a child, Zac was bright and quirky, with curly red hair and a voice that was husky and surprisingly deep. He was an excellent mimic, and often entertained his parents and his brother, Joe, by putting on accents. Joe was nearly two years older than Zac, and he attended University College School, an élite day school in Hampstead. But when Zac took the University College entrance exam he struggled with the math portion, and wasn’t admitted. He was clearly intelligent and creative, but he was less of a student than Joe, and after applying unsuccessfully to two other schools he enrolled at Mill Hill, as a day student, at the age of thirteen.
 
