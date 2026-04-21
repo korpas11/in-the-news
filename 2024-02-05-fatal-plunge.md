@@ -4,7 +4,7 @@
 
 By Patrick Radden Keefe
 <br>
-*February 5, 2024*
+*[The New Yorker, February 5, 2024](https://www.newyorker.com/magazine/2024/02/12/a-teens-fatal-plunge-into-the-london-underworld)*
 
 ----
 
@@ -369,5 +369,3 @@ One reason that it’s so difficult to know what happened at Riverwalk is that Z
 We talked about Zac’s deceptions, and Matthew suddenly brought up a podcast he’d listened to about Bob Dylan. “I didn’t realize that Dylan would tell people he ran away to join the circus at the age of thirteen,” he said. “I’m not trying to equate Zac with Dylan in terms of talent. But there are a lot of people out there who have created a fantasy existence for themselves, and it hasn’t prevented them from operating in the real world when their feet finally hit the ground.”
 
 One day in the summer of 2019, the Brettlers attended a birthday party for Matthew’s mother, in South London. Joe and Zac came, and everyone was in good spirits. But Zac said that he needed to leave early. He had recently moved into Riverwalk, and he told his parents that later, when they were about to cross Vauxhall Bridge, they should call him. When the party was over, Matthew, Rachelle, and Joe drove north, telephoning Zac on the way. As they crossed the bridge, they looked up at the Riverwalk building, and there was Zac, alone on the fifth-floor balcony, a tiny figure, waving. ♦
-
-Source: [New Yorker](https://www.newyorker.com/magazine/2024/02/12/a-teens-fatal-plunge-into-the-london-underworld)
