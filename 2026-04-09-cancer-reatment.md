@@ -3,7 +3,8 @@
 *CAR-T cell therapy, originally developed for cancer, is showing ever more promise as a treatment for autoimmune diseases.*
 
 By Katherine J. Wu
-April 9, 2026
+<br>
+[The Atlantic, April 9, 2026](https://www.theatlantic.com/science/2026/04/car-t-cell-therapy-autoimmune-disease/686742/)
 
 ----
 
