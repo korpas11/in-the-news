@@ -1,8 +1,9 @@
 ## Tóta W. Árpád: Jó vergődést!
-*2026, ápr. 21*
+*[HVG, 2026, ápr. 21](https://hvg.hu/360/20260421_hvg-tota-w-arpad-jo-vergodest-valasztas-2026-orban-viktor-fidesz)*
 
-### Magyarország túllép rajtatok. Komoly és fontos dolgokkal leszünk elfoglalva. Vitatkozunk, sőt veszekedünk a jövőről. De néha békében összegyűlünk a terrárium körül, és elnézegetjük, ahogy felfaljátok egymást.
+*Magyarország túllép rajtatok. Komoly és fontos dolgokkal leszünk elfoglalva. Vitatkozunk, sőt veszekedünk a jövőről. De néha békében összegyűlünk a terrárium körül, és elnézegetjük, ahogy felfaljátok egymást.*
 
+----
 
 Vannak, akik bűntudatot éreznek. Talán a keresztény etika pislákol bennük, vagy feszengenek, hogy a bukott kormánypárton élvezkedni olyasmi, mint nagyítóval vadászni a hangyákra. De ezek csak öntudatlan reflexek. A hangyák sosem ártottak nekünk tudatosan, a Fidesz viszont igen. Illő és helyénvaló, hogy most körbeálljuk őket, és visítva röhögjünk.
 
@@ -39,5 +40,3 @@ Lehet persze gyalázni tovább a fiatalokat, akik mindezt nem értékelték. Vag
 Nem. A bukást az hozta, hogy eddig sem zavarták el a démonokkal házaló idiótákat, sőt kifizették őket közpénzből. A tanácstalan bukdácsolás, a hibakezelés képtelensége, a kaotikus hadonászás pedig azoknak is megvilágosító erejű lesz, akik különösebb tudatosság nélkül szavazták le őket. Igen, ezek pont ennyi ésszel kormányoztak. Nem most ment el nekik.
 
 Jó vergődést! Magyarország túllép rajtatok. Komoly és fontos dolgokkal leszünk elfoglalva. A nyomasztó plakátok a kitalált ellenségekkel örökre eltűnnek. Vitatkozunk, sőt veszekedünk a jövőről. De néha békében összegyűlünk a terrárium körül, és elnézegetjük, ahogy felfaljátok egymást. Nagyító ehhez nem is kell.
-
-*Forrás: [HVG](https://hvg.hu/360/20260421_hvg-tota-w-arpad-jo-vergodest-valasztas-2026-orban-viktor-fidesz)*
