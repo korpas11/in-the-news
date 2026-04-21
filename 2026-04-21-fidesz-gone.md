@@ -1,7 +1,10 @@
 ## Tóta W. Árpád: Jó vergődést!
-*[HVG, 2026, ápr. 21](https://hvg.hu/360/20260421_hvg-tota-w-arpad-jo-vergodest-valasztas-2026-orban-viktor-fidesz)*
 
 *Magyarország túllép rajtatok. Komoly és fontos dolgokkal leszünk elfoglalva. Vitatkozunk, sőt veszekedünk a jövőről. De néha békében összegyűlünk a terrárium körül, és elnézegetjük, ahogy felfaljátok egymást.*
+
+Tóta W. Árpád
+<br>
+*[HVG, 2026, ápr. 21](https://hvg.hu/360/20260421_hvg-tota-w-arpad-jo-vergodest-valasztas-2026-orban-viktor-fidesz)*
 
 ----
 
